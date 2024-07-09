@@ -1,0 +1,1 @@
+Tengo cancer y voy a morir triste y solo
